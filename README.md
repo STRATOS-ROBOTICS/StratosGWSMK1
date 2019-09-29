@@ -1,0 +1,1 @@
+# StratosGWSMK1
